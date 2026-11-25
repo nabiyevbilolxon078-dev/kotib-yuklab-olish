@@ -1,0 +1,1 @@
+# kotib-yuklab-olish
